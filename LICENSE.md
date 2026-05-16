@@ -1,4 +1,4 @@
-# 
+# updated DaVinci Resolve for PC | DaVinci Resolve for Windows Script | AI-enhanced-editing + noise-reduction offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for
 
 
 
